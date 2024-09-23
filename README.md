@@ -11,10 +11,7 @@ Advancing my skills in programming and software development as I pursue a Bachel
 Video projects, scriptwriting for films, documentaries, and YouTube content. I’m open to collaborations involving photography and coding for creative tech projects.
 
 📫 How to reach me ...
-You can connect with me on Upwork, or drop me an email at [your email].
-
-😄 Pronouns:
-He/Him
+You can connect with me on Upwork, or drop me an email at syedasobiashah48@gmail.com
 
 ⚡ Fun fact:
 I love combining my photography and video skills with coding, creating interactive media experiences!
